@@ -1,0 +1,1 @@
+# Five-body-symetric-co-circular-central-configurations
